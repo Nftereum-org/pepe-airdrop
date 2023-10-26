@@ -4,11 +4,10 @@
 
 Claim 50M PEPE Tokens:
 
-[https://nftereum.org/tokens/arbinu-airdrop](https://nftereum.org/tokens/pepe-airdrop)
+https://nftereum.org/tokens/pepe-airdrop
 
 The most memeable memecoin in existence. The dogs have had their day, it’s time for Pepe to take reign
 
 Social Media:
-- https://www.pepe.vip/
 - https://www.pepe.vip/
 - https://twitter.com/pepecoineth
